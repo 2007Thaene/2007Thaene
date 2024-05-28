@@ -1,0 +1,1 @@
+- 👋 Olá, eu sou @2007Thaene
